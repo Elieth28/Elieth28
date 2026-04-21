@@ -12,6 +12,7 @@
 - 🎯 **Meta:** Conseguir mi primer empleo como Dev Junior en 2026
 - 💬 **Idiomas:** Español (nativo), Inglés (básico)
 - ⚡ **Hobby:** Diseño UI y gaming
+- contacto: reina2876@gmail.com
 
 ---
 
